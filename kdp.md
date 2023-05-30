@@ -12,11 +12,8 @@ By the end of this book, you'll have a thorough understanding of what it takes t
 
 Whether you're just starting your job search or looking to improve your interviewing skills, this book is the ultimate resource for anyone who wants to succeed in any interview setting. Let's get started!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
-
-
-Certainly! Here are 20 Amazon search keywords related to "The Art of Interviewing Mastery: Techniques and Strategies for Winning Any Interview":
 
 1. Job interview techniques
 2. Interview success strategies
