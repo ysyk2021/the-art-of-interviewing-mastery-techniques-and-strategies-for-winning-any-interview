@@ -1,5 +1,3 @@
-Cultivating a Winning Mindset, Confidence, and Adaptability
-=================================================================================================================
 
 Creating your own interview mastery plan can help you cultivate a winning mindset, build confidence, and develop adaptability in the job search process. In this chapter, we'll explore strategies for creating your own interview mastery plan.
 

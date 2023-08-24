@@ -1,5 +1,3 @@
-Chapter 14: Creating Your Own Interview Mastery Plan
-====================================================
 
 Creating a personalized interview mastery plan can help you achieve success in the job search process. In this chapter, we'll explore strategies for identifying your strengths and weaknesses, developing a personalized interview preparation plan, and cultivating a winning mindset, confidence, and adaptability.
 

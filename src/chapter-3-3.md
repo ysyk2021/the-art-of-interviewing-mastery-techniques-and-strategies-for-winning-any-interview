@@ -1,5 +1,3 @@
-Creating a Compelling Elevator Pitch
-=============================================================================
 
 Creating a compelling elevator pitch is essential for communicating your unique value proposition and making a positive first impression during job interviews. In this chapter, we'll explore strategies for crafting an effective elevator pitch.
 

@@ -1,5 +1,3 @@
-Chapter 12: Mastering Nonverbal Communication
-=============================================
 
 Nonverbal communication plays a crucial role in interview success, as it can impact how you are perceived by potential employers. In this chapter, we'll explore strategies for reading and interpreting body language, controlling your own nonverbal cues, and creating a positive first impression.
 

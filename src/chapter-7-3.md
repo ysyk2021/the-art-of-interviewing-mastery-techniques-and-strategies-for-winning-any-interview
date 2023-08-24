@@ -1,5 +1,3 @@
-Tips for Turning Negative Aspects into Positives
-====================================================================================================
 
 Interview questions can sometimes touch on negative aspects of your experience, such as a gap in employment or a past mistake. In this chapter, we'll explore strategies for addressing these types of questions and turning them into positives.
 

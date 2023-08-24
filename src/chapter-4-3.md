@@ -1,5 +1,3 @@
-Identifying the Company Culture and Values
-===========================================================================================
 
 Researching the company and position is essential for demonstrating your interest, knowledge, and fit during job interviews. In this chapter, we'll explore strategies for identifying the company culture and values.
 

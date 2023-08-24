@@ -1,5 +1,3 @@
-Strategies for Overcoming Anxiety and Stress
-====================================================================================================
 
 Anxiety and stress are common experiences during the job interview process, but they can impact your performance if left unaddressed. In this chapter, we'll explore strategies for overcoming anxiety and stress to build confidence during interviews.
 

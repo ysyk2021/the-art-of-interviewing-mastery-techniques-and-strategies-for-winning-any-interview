@@ -1,5 +1,3 @@
-Using Storytelling to Make Your Answers Compelling
-===============================================================================================
 
 Using storytelling can make your answers more compelling and engaging during interviews. In this chapter, we'll explore how to use storytelling to enhance your interview responses.
 

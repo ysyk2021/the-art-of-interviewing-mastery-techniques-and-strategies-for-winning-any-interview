@@ -1,5 +1,3 @@
-Chapter 4: Researching the Company and Position
-===============================================
 
 Researching the company and position before an interview is crucial for demonstrating your interest and knowledge, as well as preparing relevant examples and responses. In this chapter, we'll explore techniques for researching the company and position.
 

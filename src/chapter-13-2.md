@@ -1,5 +1,3 @@
-Techniques for Building Confidence in Your Answers
-==========================================================================================================
 
 Building confidence in your answers is crucial for performing well in interviews. In this chapter, we'll explore techniques for building confidence in your answers.
 

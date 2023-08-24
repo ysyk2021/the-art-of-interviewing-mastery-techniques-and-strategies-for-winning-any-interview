@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-==================================================================================
 
 Controlling your own nonverbal cues is a critical aspect of effective communication during an interview. In this chapter, we'll explore strategies for controlling your own nonverbal cues.
 

@@ -1,5 +1,3 @@
-The STAR Method for Answering Behavioral Questions
-===============================================================================================
 
 Behavioral questions are a common type of interview question that ask about specific situations or experiences. The Situation-Task-Action-Result (STAR) method is a structured approach that can help you answer behavioral questions effectively. In this chapter, we'll explore the STAR method and strategies for using it during interviews.
 

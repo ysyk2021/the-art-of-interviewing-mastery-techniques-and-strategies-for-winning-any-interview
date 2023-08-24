@@ -1,5 +1,3 @@
-Questions about Your Strengths and Weaknesses
-==================================================================================================
 
 Questions about your strengths and weaknesses are common interview questions that require you to reflect on your personal qualities and abilities. In this chapter, we'll explore strategies for preparing for questions about your strengths and weaknesses.
 

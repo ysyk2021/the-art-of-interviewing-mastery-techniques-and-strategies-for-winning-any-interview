@@ -1,5 +1,3 @@
-Nonverbal Communication Tips
-=======================================================================================
 
 Nonverbal communication is a crucial aspect of effective communication during an interview. In this chapter, we'll explore tips for using nonverbal communication effectively during an interview.
 

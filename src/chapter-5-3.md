@@ -1,5 +1,3 @@
-Behavioral Interview Questions
-===================================================================================
 
 Behavioral interview questions are a common type of question asked during interviews that require you to provide specific examples from your past experiences. In this chapter, we'll explore strategies for preparing for behavioral interview questions.
 

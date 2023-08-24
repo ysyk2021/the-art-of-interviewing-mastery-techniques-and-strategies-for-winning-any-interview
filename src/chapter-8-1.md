@@ -1,5 +1,3 @@
-Techniques for Effective Communication and Listening
-===============================================================================================================
 
 Effective communication and active listening are crucial skills for success during job interviews. In this chapter, we'll explore techniques for effective communication and listening.
 

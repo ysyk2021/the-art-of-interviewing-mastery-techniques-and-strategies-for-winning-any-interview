@@ -1,5 +1,3 @@
-Group Interviews
-========================================================================
 
 Group interviews can be an intimidating experience, but with the right preparation and strategies, you can effectively navigate this type of interview. In this chapter, we'll explore techniques for succeeding in group interviews.
 

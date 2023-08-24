@@ -1,5 +1,3 @@
-Chapter 13: Building Confidence and Overcoming Anxiety
-======================================================
 
 Building confidence and overcoming anxiety are critical to interview success. In this chapter, we'll explore the power of confidence in interview success, techniques for building confidence in your answers, and strategies for overcoming anxiety and stress.
 

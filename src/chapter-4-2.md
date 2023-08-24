@@ -1,5 +1,3 @@
-Understanding the Job Requirements and Responsibilities
-========================================================================================================
 
 Researching the company and position is essential for understanding the job requirements and responsibilities. In this chapter, we'll explore strategies for researching the company and position.
 

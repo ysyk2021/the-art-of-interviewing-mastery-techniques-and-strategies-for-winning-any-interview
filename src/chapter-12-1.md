@@ -1,5 +1,3 @@
-Reading and Interpreting Body Language
-=====================================================================================
 
 Reading and interpreting body language is an important skill for effective communication during an interview. In this chapter, we'll explore strategies for reading and interpreting body language.
 

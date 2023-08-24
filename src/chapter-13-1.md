@@ -1,5 +1,3 @@
-Understanding the Power of Confidence in Interview Success
-==================================================================================================================
 
 Building confidence and overcoming anxiety can be a key factor in interview success. In this chapter, we'll explore strategies for understanding the power of confidence in interview success.
 

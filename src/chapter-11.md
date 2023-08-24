@@ -1,5 +1,3 @@
-Chapter 11: Negotiating Salary and Benefits
-===========================================
 
 Negotiating salary and benefits is an important aspect of the job search process. In this chapter, we'll explore strategies for understanding the negotiation process, researching fair compensation, and negotiating benefits and perks.
 

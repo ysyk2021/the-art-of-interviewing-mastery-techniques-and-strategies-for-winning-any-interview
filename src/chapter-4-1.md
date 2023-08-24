@@ -1,5 +1,3 @@
-Conducting Research About the Company
-======================================================================================
 
 Conducting research about the company is essential for understanding its mission, values, and culture. In this chapter, we'll explore strategies for conducting research about the company.
 

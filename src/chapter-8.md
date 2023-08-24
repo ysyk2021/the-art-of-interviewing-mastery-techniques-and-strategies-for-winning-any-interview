@@ -1,5 +1,3 @@
-Chapter 8: Communicating Effectively During the Interview
-=========================================================
 
 Effective communication is a crucial aspect of succeeding in an interview. In this chapter, we'll explore techniques for effective communication and listening, building rapport and connection with the interviewer, and nonverbal communication tips.
 

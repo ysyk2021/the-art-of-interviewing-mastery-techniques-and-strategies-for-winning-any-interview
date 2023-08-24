@@ -1,5 +1,3 @@
-Chapter 7: Answering Difficult Interview Questions
-==================================================
 
 Answering difficult interview questions is a common challenge in the job search process. In this chapter, we'll explore techniques for answering difficult or unexpected questions, strategies for addressing potential red flags or concerns, and tips for turning negative aspects into positives.
 

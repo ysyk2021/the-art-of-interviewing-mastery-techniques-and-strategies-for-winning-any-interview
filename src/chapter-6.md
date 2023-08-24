@@ -1,5 +1,3 @@
-Chapter 6: Advanced Interviewing Techniques
-===========================================
 
 Advanced interviewing techniques can help you stand out and demonstrate your value to potential employers. In this chapter, we'll explore techniques for using storytelling, the STAR method, and demonstrating cultural fit.
 

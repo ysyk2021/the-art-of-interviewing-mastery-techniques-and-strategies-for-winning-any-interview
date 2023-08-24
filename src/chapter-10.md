@@ -1,5 +1,3 @@
-Chapter 10: Navigating Special Interview Circumstances
-======================================================
 
 Interviews can take many forms, and it's important to be prepared for different interview circumstances. In this chapter, we'll explore strategies for navigating phone and video interviews, group interviews, and second-round and final interviews.
 

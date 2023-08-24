@@ -1,5 +1,3 @@
-Building Rapport and Connection with the Interviewer
-===============================================================================================================
 
 Communicating effectively during the interview is crucial for building rapport and connection with the interviewer and demonstrating your value as a candidate. In this chapter, we'll explore strategies for communicating effectively during the interview.
 

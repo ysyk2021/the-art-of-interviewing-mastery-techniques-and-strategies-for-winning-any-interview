@@ -1,5 +1,3 @@
-Tips for Researching and Determining Fair Compensation
-===================================================================================================
 
 Negotiating salary and benefits can be a daunting task, but it's an important step in securing a job offer that meets your career goals and financial needs. In this chapter, we'll explore tips for researching and determining fair compensation.
 
