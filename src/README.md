@@ -1,5 +1,4 @@
 
-
 The interview process can be one of the most intimidating and stressful experiences in the job search. However, with the right techniques and strategies, anyone can master the art of interviewing and win any interview.
 
 The purpose of this book is to provide you with a comprehensive guide to mastering the art of interviewing. Whether you're a recent graduate or an experienced professional, this book will equip you with the tools and knowledge necessary to succeed in any interview setting.
