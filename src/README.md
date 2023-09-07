@@ -10,3 +10,7 @@ By the end of this book, you'll have a thorough understanding of what it takes t
 Whether you're just starting your job search or looking to improve your interviewing skills, this book is the ultimate resource for anyone who wants to succeed in any interview setting. Let's get started!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
